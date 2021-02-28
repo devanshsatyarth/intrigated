@@ -1,1 +1,1 @@
-# intrigated
+# COMPUTER INTRIGATED PROJECT
